@@ -20,7 +20,7 @@ int int int im cool im nice please!!
 hi, i'm **aeho** — aehoetxy / neptune / michiko / illuga all work.
 **afab nonbinary, she/they.**
 
-illuga kin + **lohen non-sharing yume**. i also like [sentienthunter](https://https://shipping.fandom.com/wiki/Mityosha)
+illuga kin + **lohen non-sharing yume**. i also like [sentienthunter](https://shipping.fandom.com/wiki/Mityosha)
 
 i'm pretty blunt and probably a lot less serious than this profile makes me look.
 
