@@ -1,4 +1,6 @@
-<img width="2048" height="2048" alt="1000029397" src="https://github.com/user-attachments/assets/df373a21-5369-42e2-92a2-95540c9569b0" />
+<img width="798" height="479" alt="1000029108" src="https://github.com/user-attachments/assets/0d62e1cd-c289-4ebb-ab38-e9315ba3d3ae" />
+
+
 
 
 
@@ -6,7 +8,7 @@
 
 
 ```diff
-- You look quite divine tonight, here among those vibrant lights.
+- ily lohen.
 ```
 
   
