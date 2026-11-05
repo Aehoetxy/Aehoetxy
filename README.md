@@ -1,4 +1,5 @@
-<img width="798" height="479" alt="1000029108" src="https://github.com/user-attachments/assets/0d62e1cd-c289-4ebb-ab38-e9315ba3d3ae" />
+<img width="736" height="414" alt="1000030260" src="https://github.com/user-attachments/assets/0b4b5359-8f74-4062-ac5e-6364cd9d5928" />
+
 
 
 
@@ -8,12 +9,12 @@
 
 
 ```diff
-- fucking hell ref!!!!
+- I'll be your candle on the water.
 ```
 
   
 
-int int int im cool im nice please!!
+int, i don't bite
 
 
    
@@ -21,11 +22,11 @@ int int int im cool im nice please!!
 # 𝐍𝐄𝐏𝐓𝐔𝐍𝐄 
 
 
-hi, i'm **aeho** — aehoetxy / neptune / michiko / lyra-  all work.
-**afab, she/they.**
+hi, i'm Aeho, or — Juno / Lyra-  all work.
+**she/they.**
 
 
-i'm pretty blunt and probably a lot less serious than this profile makes me look dw help
+
 
 <details>
 <summary><b>𝐃𝐍𝐈 / 𝐈𝐍𝐓</b></summary>
@@ -35,9 +36,9 @@ i'm pretty blunt and probably a lot less serious than this profile makes me look
 
 **don't int w me if you're gonna be disrespectful or deliberately annoying.**
 
-i don't care if you disagree with my interests, just don't make them my problem. i'm especially not interested in people trying to argue with me over my yume or treating my boundaries like some kind of challenge.
+i don't care if you disagree with my interests, just don't make them my problem. i'm especially not interested in people trying to argue with me over my yume or treating my boundaries like some kind of challenge please.
 
-if i block you, just leave it alone. don't make an alt, don't ask other people to bother me about it, just move on, love
+if i block you, just leave it alone. don't make an alt, don't ask other people to bother me about it, just move on broooooo
 
 </details>
 
@@ -47,9 +48,9 @@ if i block you, just leave it alone. don't make an alt, don't ask other people t
 
 
 
-i'm generally pretty easy to get along with if you're normal about it.
+i'm generally pretty easy to get along with if you're normal about it!!
 
-i like straightforward people and hate pointless drama. i'm not gonna pretend to like someone just because we're in the same fandom, and i'm not gonna make myself uncomfortable just to seem friendly.
+i like straightforward people and hate pointless drama. i'm not gonna pretend to like someone just because we're in the same fandom, and i'm *not* gonna make myself uncomfortable just to seem friendly.
 
 sometimes i'm talkative, sometimes i vanish. nothing personal most of the time.
 
@@ -59,7 +60,6 @@ sometimes i'm talkative, sometimes i vanish. nothing personal most of the time.
 
 <details>
 <summary><b>𝐈𝐍𝐓ERE𝐒TS</b></summary>
-
 
 
 
