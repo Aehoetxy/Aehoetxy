@@ -20,7 +20,7 @@ int, i don't bite
 
    
 
-# 𝐍𝐄𝐏𝐓𝐔𝐍𝐄 
+# names that are preferred 
 
 
 hi, i'm Aeho, or — Juno / Lyra-  all work.
