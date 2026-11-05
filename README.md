@@ -1,3 +1,4 @@
+someone tell me who made this namecard i wanna credit them help
 <img width="736" height="414" alt="1000030260" src="https://github.com/user-attachments/assets/0b4b5359-8f74-4062-ac5e-6364cd9d5928" />
 
 
