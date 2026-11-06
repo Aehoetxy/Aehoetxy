@@ -20,7 +20,7 @@ int, i don't bite
 
    
 
-# names that are preferred 
+*names that are preferred*
 
 
 hi, i'm Aeho, or — Juno / Lyra-  all work.
