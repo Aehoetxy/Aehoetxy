@@ -1,5 +1,5 @@
+<img width="2048" height="2048" alt="1000030551" src="https://github.com/user-attachments/assets/efa466d8-1929-469a-8dfc-f4ed61ceb5d4" />
 
-<img width="736" height="414" alt="1000030260" src="https://github.com/user-attachments/assets/0b4b5359-8f74-4062-ac5e-6364cd9d5928" />
 
 
 
@@ -23,7 +23,7 @@ int, i don't bite
 *names that are preferred*
 
 
-hi, i'm Aeho, or — Juno / Lyra-  all work.
+hi, i'm Aeho, Lyomei *(PREFERABLY)* or — Juno / Lyra-  all work.
 **she/they.**
 
 
